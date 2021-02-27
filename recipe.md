@@ -1,0 +1,1 @@
+first on the stove and put a pan in the stove and let it burn in medium flame for 10 min then add 1 tsp of oil the cut 4 potatoes in to small pieces and 1 onion in medium pieces and put i tsp of mustard and urid dall then cook it for 10 min in medium flame
